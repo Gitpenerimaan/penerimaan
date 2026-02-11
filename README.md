@@ -1,0 +1,2 @@
+# penerimaan
+about revenue
